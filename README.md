@@ -4,4 +4,4 @@ c + h is okay , whisper 2 interact if possible . i might not see your chats in p
 
 i don't accept random friend requests , might decline or ignore it
 
-dni's  &  int's in my strawpage :3
+plspls bmf i'm cool guys , just watch me having a beaten up kyle skin /jj
